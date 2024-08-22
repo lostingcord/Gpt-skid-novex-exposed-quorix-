@@ -3,11 +3,11 @@
 
 ----------------
 Explanations
-| Quorix shitshow ( owner of it is apparently a skid, he said i skidded vatos joiner , restore cord bypasser , other bypasses and reactor while the code is legit not the same , i also | havent fully skidded bloody, i have been updating it and made it better, more up to date, deadly raider was not skidded from GANG Nuker and will never be , he also said i ve used 
-| subprocess and yes thats right but he also used it... and he said that i used his old auth from 2021 while he made it in 2024 with gpt ofc and allowed me to use it...
+Quorix shitshow ( owner of it is apparently a skid, he said i skidded vatos joiner , restore cord bypasser , other bypasses and reactor while the code is legit not the same , i also | havent fully skidded bloody, i have been updating it and made it better, more up to date, deadly raider was not skidded from GANG Nuker and will never be , he also said i ve used 
+subprocess and yes thats right but he also used it... and he said that i used his old auth from 2021 while he made it in 2024 with gpt ofc and allowed me to use it...
 ----------------
 
- | ~ *Not wanting to go on code share with me... what a skid*
+ ~ *Not wanting to go on code share with me... what a skid*
 
 ----------------
 
@@ -24,7 +24,7 @@ Images
 ```Some of his codes >>```
 
 More Proof
-| ~ *More proof >>*
+~ *More proof >>*
 Saying that threading is better than asyncio to dancers...
 He never replies when u want to code share with him, he has never coded live with anyone and has never coded on screenshare
 ![image](https://github.com/user-attachments/assets/f1c6bbf2-4fde-4c6e-b45b-8da1c6a7368e)

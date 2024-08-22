@@ -1,7 +1,7 @@
-# Gpt-skid-novex-exposed-quorix-
+* Gpt-skid-novex-exposed-quorix-
 Novex expose ( gpt skid, some of his codes , acts like a coder )
 
-# Quorix shitshow ( owner of it is apparently a skid, he said i skidded vatos joiner , restore cord bypasser , other bypasses and reactor while the code is legit not the same , i also havent fully skidded bloody, i have been updating it and made it better, more up to date, deadly raider was not skidded from GANG Nuker and will never be , he also said i ve used subprocess and yes thats right but he also used it... and he said that i used his old auth from 2021 while he made it in 2024 with gpt ofc and allowed me to use it...
+* Quorix shitshow ( owner of it is apparently a skid, he said i skidded vatos joiner , restore cord bypasser , other bypasses and reactor while the code is legit not the same , i also havent fully skidded bloody, i have been updating it and made it better, more up to date, deadly raider was not skidded from GANG Nuker and will never be , he also said i ve used subprocess and yes thats right but he also used it... and he said that i used his old auth from 2021 while he made it in 2024 with gpt ofc and allowed me to use it...
 
  | Not wanting to go on code share with me... what a skid
 

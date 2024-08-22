@@ -27,3 +27,6 @@ More Proof
 | ~ *More proof >>*
 Saying that threading is better than asyncio to dancers...
 He never replies when u want to code share with him, he has never coded live with anyone and has never coded on screenshare
+![image](https://github.com/user-attachments/assets/f1c6bbf2-4fde-4c6e-b45b-8da1c6a7368e)
+Even good devs are saying hes a skid... and a gpt user funny thing! 🤣
+
